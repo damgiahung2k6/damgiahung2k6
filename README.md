@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [I learning coding when I was 15](I learning coding when I was 15)
 
-- ⚡ Fun fact **I think I have a dad jokes can make you mad :DD**
+- ⚡ Fun fact **I think I have a dad joke can make you mad :DD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
